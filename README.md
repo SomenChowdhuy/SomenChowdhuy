@@ -1,4 +1,4 @@
-- 👋 Hi,It's me, @SomenChowdhuy
+- 👋 Hi,It's me, @SomenChowdhury
 - 👀 I’m highly interested in graphic designing. Currently
      working as a design contributor on two passive 
      microstock marketplace sites namely ' shutterstock'and 
